@@ -5,7 +5,7 @@
 
 - 📄 Know about my experiences [https://ihor-mikheyev.github.io/my-cv/](https://ihor-mikheyev.github.io/my-cv/)
 
-- ⚡ Fun fact **I think dogs are funniest than cats**
+- ⚡ Fun fact **I think dogs are funniest than cats but I like them**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
